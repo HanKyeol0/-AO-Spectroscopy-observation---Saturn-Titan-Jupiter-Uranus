@@ -1,1 +1,1 @@
-# -AO-Spectroscopy-observation---Saturn-Titan-Jupiter-Uranus
+# Spectroscopy observation: Saturn, Titan, Jupiter and Uranus
